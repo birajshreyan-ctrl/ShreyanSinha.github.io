@@ -1,2 +1,2 @@
-# ShreyanSinha.github.io
+# ShreyanSinhaBiraj.github.io
 My official personal website
